@@ -1,1 +1,0 @@
-# Nahum-Examen-1erParcial
